@@ -1,4 +1,4 @@
-# 
+# best Trading Bot for Polymarket - cross-chain-arbitrage and trade-sniping is the best Polymarket trading-bot, featuring cross-chain-arbitrage and trade-sniping. Smart, fast, and
 
 
 
